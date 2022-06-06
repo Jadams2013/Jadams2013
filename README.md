@@ -1,5 +1,5 @@
 # James Adams  
-Jadams2013+Jobs@gmail.com  
+Jadams2013@gmail.com  
 980-279-6135  
 
 ## Education  
